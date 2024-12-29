@@ -1,6 +1,6 @@
 # AgentNEO官网地址
 
-最新地址：[v2neo.org](https://niceneo.com/?rc=z3mdtl9c)
+最新地址：[v2neo.org](https://niceneo.com/?rc=d4xfhosm)
 
 ## 简介
 
